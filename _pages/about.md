@@ -24,3 +24,5 @@ I am a postdoctoral researcher at the University of Alabama since 2022. I gradua
 I have been working at the University of Alabama across several sectors, such as the Institute of Data Analytics, the Department of Information Systems, Statistics, and Management Science, Alabama Mobility Power Center, and Alabama Transportation Institute.
 
 Please contact me at mma10@ua.edu for potential collaboration and research requests.
+
+--- This website is dedicated to the memory of my late father.
