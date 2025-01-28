@@ -26,3 +26,5 @@ I have been working at the University of Alabama across several sectors, such as
 Please contact me at mma10@ua.edu for potential collaboration and research requests.
 
 --- This website is dedicated to the memory of my late father.
+
+--- I will take up my cross daily and bring all glory to God.
